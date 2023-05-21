@@ -2,8 +2,6 @@
 - 👀 I’m interested in ...Tech
 - 🌱 I’m currently learning ...Tech
 - 💞️ I’m looking to collaborate on ...Tech stuff
-- 📫 How to reach me ...@Snap - Nithishshar3226
-@insta- try_shoutin_nithi
 Mail: Nithish.sarma24@gmail.com
 
 <!---
